@@ -16,13 +16,7 @@ bleekselderij
 
 winterpenen
 
-1½ el
-
-milde olijfolie
-
-75 g
-
-spekreepjes
+![alt text](https://static.ah.nl/static/recepten/img_RAM_PRD130114_1224x900_JPG.jpg)
 
 300 g
 
